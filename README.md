@@ -53,10 +53,12 @@
 <li><a target="_blank" href="http://bankpfxwndohu7ug.onion" rel="nofollow">Banker and Co.</a> - Professional money laundering and consultation service.</li>
 <li><a target="_blank" href="http://2ue35wfkmo3dlgjm.onion" rel="nofollow">Anonymous Internet Banking</a> - Anonymous Debit Cards with EU bank account and VCCs by A HackBB trusted vendor</li>
 <li><a target="_blank" href="http://xpdwuhcctiqvpyz4.onion" rel="nofollow">InstaCard</a> - Sell your bitcoins for a virtual - VISA credit card, in $25, $50, or $100 denominations. $5 fee.</li>
-<li><a target="_blank" href="http://4eiruntyxxbgfv7o.onion.to/snapbbs/69b87670/" rel="nofollow">Paypal4free</a> - Hacked Paypal accounts for cheap, with balances</li>
+<li><a target="_blank" href="http://4eiruntyxxbgfv7o.onion" rel="nofollow">Paypal4free</a> - Hacked Paypal accounts for cheap, with balances</li>
+<li><a target="_blank" href="http://shop4pwvfbe7736b.onion" rel="nofollow">Black Shop</a> -  Paypal&Cvv for cheap sell, with balances</li>
 <li><a target="_blank" href="http://5xhp3ntcxfpfd5ig.onion" rel="nofollow">PayPal Store</a> - Purchase clean, verified USA PayPal accounts with Bitcoin. (<a title="HB" href="http://3suaolltfj2xjksb.onion" rel="nofollow"><span style="color: #00b000;">Host:</span></a> FH)</li>
+<li><a target="_blank" href="http://jbu24gqtbstpkvy2.onion" rel="nofollow">Cash Machine</a> - Purchase clean, verified USA PayPal&Cvv&Bank accounts with Bitcoin. (<a title="HB" href="http://3suaolltfj2xjksb.onion" rel="nofollow"><span style="color: #00b000;">Host:</span></a> FH)</li>
 <li><a target="_blank" href="http://fogcore5n3ov3tui.onion" rel="nofollow">Bitcoin Fog</a> - Laundry service.</li>
-<li><a target="_blank" href="http://f3ew3p7s6lbftqm5.onion.to/text/BTC.txt" rel="nofollow">Little BTC Ebook</a> - The new way of selling and buying Bitcoin is through Second Life, more information here.</li>
+<li><a target="_blank" href="http://f3ew3p7s6lbftqm5.onion" rel="nofollow">Little BTC Ebook</a> - The new way of selling and buying Bitcoin is through Second Life, more information here.</li>
 </ul>
 <h3><a name="TOC-Commercial-Services"></a>Commercial Services</h3>
 <ul>
