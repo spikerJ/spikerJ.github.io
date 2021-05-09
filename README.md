@@ -400,9 +400,3 @@
 <li><a href="http://ykrxnmvcmozu5maa.onion.to/" rel="nofollow">Mom4Europe</a> - Marijuana from Netherlands (Bitcoin)</li>
 <li><a href="http://pnunpbo4fu3v2z7d.onion.to/" rel="nofollow">DrugSpace</a> - Dispensary
 
-
-          
-
-
-
-                <div class="doc_comments">
